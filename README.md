@@ -4,9 +4,6 @@
 
 🤠 Pronouns: he\him
 
-🎈Fun facts:
-- I don't mind to play Starbound on Sundays 🚀
-
 <!--
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
