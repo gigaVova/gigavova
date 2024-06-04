@@ -1,6 +1,6 @@
 <h1 align="center">Hi there 👋</h1>
 
-🙋‍♂️ My name is Vladimir and I'm from a planet called Earth 🌍.
+🙋‍♂️ My name is Vladimir and I'm from a planet called Earth 🌍
 
 🤠 Pronouns: he\him
 
